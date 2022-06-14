@@ -1,6 +1,6 @@
 # SY_Territories
 ##DISCORD
-
+Link :- https://discord.gg/NbtEXDRurX
 
 ## Preview 
 Link :- https://youtu.be/GG1FOlyGdzI
